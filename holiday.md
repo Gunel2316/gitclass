@@ -1,1 +1,1 @@
-Looking forward to the party :pizza: ! :smiley:_ :laugh:_ :party:
+Looking forward to the party :pizza: ! :smiley:_ 
